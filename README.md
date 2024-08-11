@@ -1,6 +1,6 @@
-Hi, I'm Kimberly
+Hi, I'm Kimberly but you can call me Kimby
 
-Game Designer and 3D Artist | Freelancer
+I am a Game Designer and 3D Artist | Freelancer
 
 Based in Guatemala
 
