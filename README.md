@@ -1,6 +1,6 @@
 Hi, I'm Kimberly
 
-Game Designer and 3D Character Artist | Freelancer
+Game Designer and 3D Artist | Freelancer
 
 Based in Guatemala
 
